@@ -1,1 +1,1 @@
-# 1C1T
+# quick-cite
